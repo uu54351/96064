@@ -21,4 +21,4 @@
 如果你正在寻找一个真正稳定、更新迅速且永久免费使用的日本AV网站，不妨收藏本站。我们承诺持续为用户提供优质内容，打造全网体验最好的日本AV免费在线观看平台。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/uu54351/96064 ）</span>
